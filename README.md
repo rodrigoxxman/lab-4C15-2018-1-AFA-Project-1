@@ -1,1 +1,3 @@
-"asdasda" 
+Newfags can't triforce
+  ?
+ ? ?
